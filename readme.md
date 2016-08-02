@@ -7,4 +7,6 @@ Hur är vädret i el stockholmo?
 
 Ye förfaen herre fint asså - värsta guttsvenne här skaruse! (?)
 
-Här regnar de stup i kvarten! 
+Här regnar de stup i kvarten!
+
+Hahaha! Här är det aprilväder hela tiden!
