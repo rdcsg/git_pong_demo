@@ -12,3 +12,5 @@ Här regnar de stup i kvarten!
 Hahaha! Här är det aprilväder hela tiden!
 
 Nåra planer för ikväll?
+
+Ja, mye trevliga <planer!></planer!>Jag ska träffa släkten och måste eg hinna göra 2 jobbgrejer som jag lovat.... hm undrar hur jag ska hinna till kl 1730 med allt.
