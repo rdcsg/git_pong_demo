@@ -10,3 +10,5 @@ Ye förfaen herre fint asså - värsta guttsvenne här skaruse! (?)
 Här regnar de stup i kvarten!
 
 Hahaha! Här är det aprilväder hela tiden!
+
+Nåra planer för ikväll?
